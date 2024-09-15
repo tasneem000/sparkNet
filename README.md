@@ -50,7 +50,6 @@ Feel free to get in touch with us for any inquiries or to discuss your project n
 
 - **Email**: samit@sparknetco.com
 - **Phone**: ***********
-- **Address**: Dubai, UAE
 
 We look forward to collaborating with you to create exceptional digital solutions!
 
